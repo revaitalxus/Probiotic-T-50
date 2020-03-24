@@ -1,0 +1,2 @@
+# Probiotic-T-50
+With the Probiotic T 50 ingredients, you would be able to enjoy a healthy abdomen and an overall enhanced body system. You’re getting a precise blend of 50 billion total living organisms, made up of 11 strains of ‘Director Probiotic’ bacteria species. The ingredients include:Click Here https://www.marketwatch.com/press-release/zenith-labs-probiotic-t-50-reviews-price-benefits-2020-03-11  https://www.completefoods.co/diy/recipes/zenith-labs-hair-revital-x-hair-revital-x
